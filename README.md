@@ -1,2 +1,2 @@
 # Wet230
-Stret
+Bahoz Tarafindan Baski oluyir
